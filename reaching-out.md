@@ -1,0 +1,1 @@
+Hey Jeff. I heard what happened, but I don't have your number and cant find you on linkedin. Reach out when you can man. Much love to you and your family. 
